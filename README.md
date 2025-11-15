@@ -1,6 +1,6 @@
 ### Hi there, I'm Rishabh - aka r-kohale9 👋
 
-## I'm a Student, Weeb and Developer!!
+## I'm a Developer!!
 
 - 🌱 I’m currently learning everything 🤣
 - 🥅 Current Goals: <--Calibrating-->
